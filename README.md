@@ -1,0 +1,1 @@
+# BintangX6Loc
